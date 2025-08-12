@@ -3,7 +3,7 @@
 ---
 
 ## 🚀 Sobre mim
-Sou um profissional com mais de 3 decadas de experiência na área de Tecnologia da Informação e Comunicação. Atualmente ocupo o cargo de Analista de Dados Junior na Embraer. Minha carreira começou em 1991 como Instrutor de Informática e evolui ao longo dos anos, passando por papéis como Técnico de Suporte de Informática e Analista de Suporte em provedores de Internet, como BR Homeshopping e Unikey BBS, onde se especializou em Desenvolvimento Web e atuou como WebMaster.
+Sou um profissional com mais de 3 decadas de experiência na área de Tecnologia da Informação e Comunicação. Atualmente ocupo o cargo de Analista de Dados na Embraer. Minha carreira começou em 1991 como Instrutor de Informática e evolui ao longo dos anos, passando por papéis como Técnico de Suporte de Informática e Analista de Suporte em provedores de Internet, como BR Homeshopping e Unikey BBS, onde se especializou em Desenvolvimento Web e atuou como WebMaster.
 
 Por 19 anos, contribui como Programador na Fundação de Estudos do Mar, trabalhando na Diretoria de Portos e Costas da Marinha do Brasil. Posteriormente, atuei como Analista de Suporte Sênior na Capitania dos Portos do Rio de Janeiro. Sou Autodidata e apaixonado por tecnologia, também sou Espírita Umbandista e dedico-me a escrever e ministrar palestras sobre temas espirituais.
 
