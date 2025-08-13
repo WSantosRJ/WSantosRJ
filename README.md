@@ -7,9 +7,9 @@ Sou um profissional com mais de 3 decadas de experiência na área de Tecnologia
 
 Por 19 anos, contribui como Programador na Fundação de Estudos do Mar, trabalhando na Diretoria de Portos e Costas da Marinha do Brasil. Posteriormente, atuei como Analista de Suporte Sênior na Capitania dos Portos do Rio de Janeiro. Sou Autodidata e apaixonado por tecnologia, também sou Espírita Umbandista e dedico-me a escrever e ministrar palestras sobre temas espirituais.
 
-Além de minha carreira, sou voluntário ativo nas instituições Instituto Embraer e Instituto Joule, e também atua como Embaixador de Campus na Plataforma de Estudos Dio.me. Uma de minhas maiores realizações foi ministrar uma palestra sobre Tecnologia da Informação e Comunicação e minha carreira nessa área para os alunos da 2ª série do Colégio Embraer - Juarez Wanderley. Sou Guiado por princípios de respeito, honra e lealdade, busco sempre proporcionar uma vida melhor para minha família e alcançar a posição de Chief Analytics Officer.
+Além de minha carreira, sou voluntário ativo nas instituições Instituto Embraer e Instituto Joule, e também atuo como Embaixador de Campus na Plataforma de Estudos Dio.me. Uma de minhas maiores realizações foi ministrar uma palestra sobre Tecnologia da Informação e Comunicação e minha carreira nessa área para os alunos da 2ª série do Colégio Embraer - Juarez Wanderley. Sou Guiado por princípios de respeito, honra e lealdade, busco sempre proporcionar uma vida melhor para minha família e alcançar a posição de Chief Analytics Officer.
 
-Nos momentos de lazer, gosto de jogar Tribal Wars, um jogo On-line Medieval, cozinhar e maratonar séries de TV, como Star Trek e Star Wars. Ele é fã de filmes de ficção científica, ação, suspense e terror. Residente no Rio de Janeiro, ele aprecia viajar com a família sempre que possível.
+Nos momentos de lazer, gosto de jogar Tribal Wars, um jogo On-line Medieval, cozinhar e maratonar séries de TV, como Star Trek e Star Wars. Sou fã de filmes de ficção científica, ação, suspense e terror. Sou residente na cidade de Itaperuna no estado do Rio de Janeiro, aprecio viajar com minha família sempre que possível.
 
 ---
 
